@@ -10,9 +10,7 @@ At work during the past three months I have been directing traffic at UMD Basket
 As I work for campus police as a Police Aide, I do not have much work to organize. However, I do find a calender helpful for reminders. A strong knowledge of the campus and good people skills are also very helpful.
 
 
-Tips to organizing research
-
-Name? Zainab
+Name: Zainab
 
 What kind of scientist do you you tell people you are at dinner parties? Non-Scientist
 
